@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Alexei aka @faxmaestro
 - 👀 I’m interested in developing my programming skills
-- 🌱 I’m currently learning Pithon
+- 🌱 I’m currently learning pithon
 - 📫 You can reach me via phone +79602557575, it is connected to my Telegram, Whatsapp, Viber
 - You can also message me to faxmaestro@gmail.com
 - I have also an acount on facebook at the following address:
